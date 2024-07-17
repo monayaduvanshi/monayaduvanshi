@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @monayaduvanshi
 - 👀 I’m interested in data analysis
 - 🌱 I’m currently learning everything related to data and creating insights from it.
-- 💞️ I’m looking to collaborate on anyone enthusia for data analysis
+- 💞️ I’m looking to collaborate on anyone enthusias for data analysis
 - 📫 How to reach me .. reach me on likedin https://www.linkedin.com/in/monika-yaduvanshi/
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
